@@ -1,1 +1,2 @@
 # sotuken-_tyuukann
+# tyuukannhoukoku
